@@ -7,7 +7,6 @@
 
 URLs:  
   Twitter: https://twitter.com/WHITE555Gamer, https://twitter.com/WHERE_WHITE_, https://twitter.com/WHITEonFire  
-  
   Curseforge: https://www.curseforge.com/members/sw5white/projects  
   
 
